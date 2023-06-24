@@ -5,4 +5,4 @@
 - Previously worked at [Capgemeini](https://www.linkedin.com/company/capgemini/?originalSubdomain=in) as Machine Learning Intern.
 - Interested to work on topics such as Generative AI & LLMs. 
 
-Contact me on namandalsania12@gmail.com ✉ 
+Reach me at namandalsania12@gmail.com ✉ 
