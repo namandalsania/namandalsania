@@ -4,6 +4,6 @@
 
 - Previously worked at [Capgemeini](https://www.linkedin.com/company/capgemini/?originalSubdomain=in) as Machine Learning Intern.
 - Interested to work on topics such as Generative AI & LLMs.
-- Seeking a career in the Investment Banking/Fintech domain.
+- Rearing to make a career in the Investment Banking/Fintech Industry.
 
 Reach me at namandalsania12@gmail.com ✉ 
